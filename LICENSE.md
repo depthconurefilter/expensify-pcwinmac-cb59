@@ -1,4 +1,4 @@
-# 
+# Léger Expensify flux de travail pour Mac OS | Mis à jour Expensify flux de travail pour PC Windows. Avec recherche de déductions et applications mobiles — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
